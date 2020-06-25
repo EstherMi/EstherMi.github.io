@@ -12,3 +12,7 @@ Die Olchi-Kinder sind frech, intelligent und mutig. So sollen Kinder sein.
 * haben keinen Namen
 * besuchen keine Schule und keinen Kindergarten
 * verreisen gerne
+
+
+> Immer spielen  die Regenwürmer nur mit  dem Olchi-Baby!
+> Schleim, Schlamm und Käsefuß

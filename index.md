@@ -16,3 +16,5 @@ Die Olchi-Kinder sind frech, intelligent und mutig. So sollen Kinder sein.
 
 > Immer spielen  die Regenwürmer nur mit  dem Olchi-Baby!
 > Schleim, Schlamm und Käsefuß
+
+<img src="https://www.olchis.de/wp-content/uploads/2015/09/kinder.png"/>
